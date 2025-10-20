@@ -11,4 +11,4 @@ I looove to selfship, I've been doing it since 2018 💛 Jean was my first ever 
 
 Feel free to sit around with me if ur a pony from the same media as I am! I may not speak unless spoken to but I will notice you ^^
 
-Current Main Interest: Attack on Titan
+Current Main Interest: Attack on Titan ⚔️
