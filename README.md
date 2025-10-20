@@ -6,5 +6,9 @@ Gregan sweep 🪳🌻
 ![pony-town-Megan 🌻 {AoT Sona⚔} 🌻🍒-kiss-blinking-padded-2x](https://github.com/user-attachments/assets/02aab77b-9e02-4afd-9bff-33e3c4083b19)
 Mejean sweep 🌻🍒
 
+
 I looove to selfship, I've been doing it since 2018 💛 Jean was my first ever f/o btw I love him so so much
 
+Feel free to sit around with me if ur a pony from the same media as I am! I may not speak unless spoken to but I will notice you ^^
+
+Current Main Interest: Attack on Titan
