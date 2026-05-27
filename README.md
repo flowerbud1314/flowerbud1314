@@ -9,8 +9,10 @@ Mejean sweep 🌻🍒
 
 I looove to selfship, I've been doing it since 2018 💛 Jean was my first ever f/o btw I love him so so much
 
+My main F/O's right now are Gregor🪳🌻 (Limbus), Wriothesley⛓️🧹 and Varka⚔️🏹 (Genshin), and Jean🍒🌻 (Attack on Titan)
+
 Feel free to sit around with me if ur a pony from the same media as I am! I may not speak unless spoken to but I will notice you ^^
 
-Current Main Interest: Attack on Titan ⚔️
+Current Main Interest: Limbus Company 🔑🌙🚌 and Genshin Impact ⚔️✨
 
 If I'm on busy that means I'm likely offtab, playing a game, or drawing! So if you have anything to say send a whisper so I don't miss it ^^
