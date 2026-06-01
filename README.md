@@ -16,3 +16,5 @@ Feel free to sit around with me if ur a pony from the same media as I am! I may 
 Current Main Interest: Limbus Company 🔑🌙🚌 and Genshin Impact ⚔️✨
 
 If I'm on busy that means I'm likely offtab, playing a game, or drawing! So if you have anything to say send a whisper so I don't miss it ^^
+
+PFP by meursoul on twt ^^
