@@ -6,7 +6,7 @@ Gregan sweep 🪳🌻
 ![pony-town-Megan 🌻 {AoT Sona⚔} 🌻🍒-kiss-blinking-padded-2x](https://github.com/user-attachments/assets/02aab77b-9e02-4afd-9bff-33e3c4083b19)
 Mejean sweep 🌻🍒
 
-<img width="122" height="124" alt="pony-town-The_Duke_ships_DNI-kiss-lift-hoof-blinking-padded-2x" src="https://github.com/user-attachments/assets/a60d73b6-95d3-4f0a-a781-bc6b355fa013" />
+<img width="122" height="124" alt="pony-town-The_Duke_ships_DNI-kiss-lift-hoof-blinking-padded-2x" src="https://github.com/user-attachments/assets/c1ae1658-4153-4f3e-a2d7-43b9713d0e3d" />
 <img width="106" height="128" alt="pony-town-Megan {GI Sona} Wrio kisser😘-kiss-lift-hoof-blinking-padded-2x" src="https://github.com/user-attachments/assets/d1eeafab-bb17-4cca-8315-c98378c45329" />
 
 
