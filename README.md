@@ -7,7 +7,7 @@ Gregan sweep 🪳🌻
 Mejean sweep 🌻🍒
 
 <img width="122" height="124" alt="pony-town-The_Duke_ships_DNI-kiss-lift-hoof-blinking-padded-2x" src="https://github.com/user-attachments/assets/a60d73b6-95d3-4f0a-a781-bc6b355fa013" />
-<img width="86" height="116" alt="pony-town-Megan {GI Sona} Wrio kisser😘-kiss-lift-hoof-blinking-toy213-2x" src="https://github.com/user-attachments/assets/5dd57437-8ae2-405f-b704-6e9fa190199d" />
+<img width="106" height="128" alt="pony-town-Megan {GI Sona} Wrio kisser😘-kiss-lift-hoof-blinking-padded-2x" src="https://github.com/user-attachments/assets/d1eeafab-bb17-4cca-8315-c98378c45329" />
 
 
 I looove to selfship, I've been doing it since 2018 💛 Jean was my first ever f/o btw I love him so so much
