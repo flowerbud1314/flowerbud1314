@@ -8,10 +8,12 @@ Mejean sweep 🌻🍒
 
 <img width="122" height="124" alt="pony-town-The_Duke_ships_DNI-kiss-lift-hoof-blinking-padded-2x" src="https://github.com/user-attachments/assets/c1ae1658-4153-4f3e-a2d7-43b9713d0e3d" />
 <img width="106" height="128" alt="pony-town-Megan {GI Sona} Wrio kisser😘-kiss-lift-hoof-blinking-padded-2x" src="https://github.com/user-attachments/assets/d1eeafab-bb17-4cca-8315-c98378c45329" />
-Wriogan sweep ⛓️🧹 (idk why the gif is weird and i cant be asses to figure it out rn)
+Wriogan sweep ⛓️🧹 (idk why the gifs are weird and i cant be asses to figure it out rn)
 
 
-~ ~ ~ ~
+💛
+💛
+💛
 
 
 I looove to selfship, I've been doing it since 2018 💛 Jean was my first ever f/o btw I love him so so much
