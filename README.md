@@ -11,6 +11,8 @@ Mejean sweep 🌻🍒
 Wriogan sweep ⛓️🧹 (idk why the gif is weird and i cant be asses to figure it out rn)
 
 
+
+
 I looove to selfship, I've been doing it since 2018 💛 Jean was my first ever f/o btw I love him so so much
 
 My main F/O's right now are Gregor🪳🌻 (Limbus), Wriothesley⛓️🧹 and Varka⚔️🏹 (Genshin), and Jean🍒🌻 (Attack on Titan)
