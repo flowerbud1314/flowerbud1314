@@ -15,6 +15,8 @@ Feel free to sit around with me if ur a pony from the same media as I am! I may 
 
 Current Main Interest: Limbus Company 🔑🌙🚌 and Genshin Impact ⚔️✨
 
-If I'm on busy that means I'm likely offtab, playing a game, or drawing! So if you have anything to say send a whisper so I don't miss it ^^
+If I'm on busy that means I'm likely offtab, playing a game, or drawing! So if you have anything to say send a whisper so I don't miss it!
+
+I hide/block freely, mainly if you partake in a ship with any of my f/o's. I block for Gregor and Jean but only 24hour hide for others. Nothing against you I just don't wanna see it, that's all
 
 PFP by meursoul on twt ^^
